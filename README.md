@@ -142,6 +142,19 @@ I help professionals improve their resumes and LinkedIn profiles for targeted jo
 
 👉 **[Get Started — Submit Your Information](https://tally.so/r/2EpAbL)**
 
+
+## 📂 LinkedIn Before & After Sample
+
+👉 **[View LinkedIn Before & After Sample](./LinkedIn-Before-After-Sample.pdf)**
+
+---
+
+## 📩 Work With Me
+
+I help professionals improve their resumes and LinkedIn profiles for targeted job opportunities.
+
+👉 **[Get Started — Submit Your Information](https://tally.so/r/2EpAbL)**
+
 ---
 
 ### 🔗 Connect With Me
